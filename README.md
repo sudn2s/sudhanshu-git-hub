@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sudhanshu-git-hub ^Sudhanshu Singh^
 - 👀 I’m interested in everything
-- 🌱 I’m currently learning unviverse
+- 🌱 I’m currently learning universe
 - 💞️ I’m looking to collaborate on anywhere you want
 - 📫 How to reach me sudnsus@gmail.com (24x7)
 
